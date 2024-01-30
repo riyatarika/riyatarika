@@ -5,7 +5,7 @@
 - 📫 How to reach me riyatarika99@gmail.com
 - ⚡ Fun fact: I'm not that bad singer
 
-  ![image title](https://rushter.com/counter.svg)
+![](https://komarev.com/ghpvc/?username=riyatarika)
   
 
 <!---
