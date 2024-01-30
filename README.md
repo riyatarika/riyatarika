@@ -4,6 +4,7 @@
 - 💞️ I’m looking to grow in the data-driven environment
 - 📫 How to reach me riyatarika99@gmail.com
 - ⚡ Fun fact: I'm not that bad singer
+![image](https://github.com/riyatarika/riyatarika/assets/158162260/1442b0e8-0766-44e2-ac1f-cc8b3301cae4)
 
 ![](https://komarev.com/ghpvc/?username=riyatarika)
   
